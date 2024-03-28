@@ -11,7 +11,7 @@ I am ready to take on new challenges and continuously learn to expand my skill s
 Looking forward to connecting with you! 👇
 
 **Contact Information:**
-- Email: aleli1415@gmail.com
+- Email: alejandroortegadev@gmail.com
 - LinkedIn: www.linkedin.com/in/alejandroortegaruiz-gamedeveloper
 - GitHub: https://github.com/Alejao03
 - Portfolio: https://alejao03.github.io/Alejao03/
